@@ -4,4 +4,4 @@
 
 [www.gokhankutbay.ml](https://www.gokhankutbay.ml/)
 
-[foto-gif](https://gokhankutbay.ml/upload/assets/img/ekran-foto.PNG)
+![foto-gif](https://gokhankutbay.ml/upload/assets/img/ekran-foto.PNG)
