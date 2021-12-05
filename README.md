@@ -4,7 +4,7 @@
 
 ### Please share to support me. Thank you in advance. Use it on good days.
 
-[www.gokhankutbay.ml](https://www.gokhankutbay.ml/)
+[www.gokhankutbay.ml](https://www.gokhankutbay.com/)
 
 ### Follow me;
 
