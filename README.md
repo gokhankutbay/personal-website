@@ -1,6 +1,6 @@
 # personal-website
 
-![foto-gif](https://gokhankutbay.ml/upload/assets/img/ekran-foto.PNG)
+![foto-gif](https://gokhankutbay.ml/assets/img/ekran-foto.png)
 
 ### Please share to support me. Thank you in advance. Use it on good days.
 
